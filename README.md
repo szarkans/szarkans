@@ -1,4 +1,5 @@
-Hi, i'm Szarkan! 
+Hi, i'm Szarkan! Minecraft brainrot player and python lover.
+19 y.o.
 
 ***
 
