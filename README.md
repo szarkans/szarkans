@@ -1,5 +1,5 @@
 **Python**✅ god  
-**Bugs**✅ killed 
+**Bugs**✅ killed  
 **Desire to live**✅ none  
   
 ```py
